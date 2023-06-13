@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ali-joshaghani
+- 👀 I’m interested in Python programming and web design and watching movies and series
+- 🌱 I’m currently learning Python and C++ and machine learning and artificial intelligence
+- 💞️ I’m studying in Shahid Ajei 2 High School and I would like to do a project with children of my age. If you want to cooperate, follow me and send a message to this email ==> aliijoshaghani10@gmail.com
+- 📫 If you want to have a site, follow me and send a message to this email ==> aliijoshaghani10@gmail.com
